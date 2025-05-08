@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning in college
 - 💞️ I’m looking to collaborate on SleryFink
 - 📫 How to reach me https://t.me/beautifulhexus
-- 😄 Pronouns: ...
+- 😄 Pronouns: he
 - ⚡ Fun fact: I live in Russia and not in Belarus as stated
 
 <!---
